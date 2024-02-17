@@ -3,4 +3,4 @@
 - 🌱 I’m currently learning Programming Languages
 - 💞️ I’m looking to collaborate to develop my skills
 - 📫 How to reach me ...
-
+- You can e-mail me: Wahidmahmudedge@gmail.com
