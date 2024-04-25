@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Wahid.
+- 👋 Hi, I’m Sajjad Hossain.
 - 👀 I’m interested in Video Editing 
 - 🌱 I’m currently learning Programming Languages
 - 💞️ I’m looking to collaborate to develop my skills
